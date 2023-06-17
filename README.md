@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hi, Now that you are here, let me tell you a bit about myself 
+===============================================================================================================================
+I am Aman, I love to learn, work with people with diverse backgrounds, and build something that people care about.
+
+* ✉️ You can contact me on [LinkedIn](https://www.linkedin.com/in/aman2k4/)
 
 <!--
 **aman2k4/aman2k4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
