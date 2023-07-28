@@ -1,6 +1,6 @@
 ### Hi 👋🏽
 
-I'm Aman, and my greatest joy lies in expanding my knowledge, collaborating with people, and crafting products that make a meaningful impact on people's lives.
+I'm Aman, currently enjoying expanding my knowledge, collaborating with people, and crafting products that make a meaningful impact on people's lives.
 
 ✉️ You can contact me on [LinkedIn](https://www.linkedin.com/in/aman2k4/)
 
