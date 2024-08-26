@@ -1,8 +1,11 @@
 ### Hi 👋🏽
 
-I'm Aman, currently enjoying expanding my knowledge, collaborating with people, and crafting products that make a meaningful impact on people's lives.
+I'm Aman, currenlty building stuff.
 
-✉️ You can contact me on [LinkedIn](https://www.linkedin.com/in/aman2k4/)
+✉️ DM me on [X](https://x.com/easilyboard)
+
+[Instagram](https://www.instagram.com/startupbaniya/)
+[YT](https://www.youtube.com/@startupbaniya/)
 
 <!--
 **aman2k4/aman2k4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
